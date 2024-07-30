@@ -1,4 +1,4 @@
-# Hi, Everyone 👋🏻
-- Name: Purim Phumwana
+# Hi, Everyone I'm Purim Phumwana 👋🏻
+
 - Nickname: Por
 - Age: 25yrs
